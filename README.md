@@ -30,7 +30,7 @@ people keep away from glee
 i admit i have been honest
 for the sake of my own deed
 so i'll turn the way too hasty 
-pay ghost fees and promptly leave
+pay ghost fees and promptly leave (pay the fees)
 
 all they see in me is gallows
 while I wanna tell them live but 
