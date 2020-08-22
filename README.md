@@ -27,10 +27,10 @@ where all others seem to be
 until bad just fucking happens
 people keep away from glee
 
-i admit i have been honest
+i admit i have been honest / i admit i'm still that honest
 for the sake of my own deed
 so i'll turn the way too hasty 
-pay ghost fees and promptly leave (pay the fees)
+pay ghost fees and promptly leave / pay the fees and promptly leave
 
 all they see in me is gallows
 while I wanna tell them live but 
