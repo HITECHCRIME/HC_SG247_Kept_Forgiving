@@ -37,7 +37,7 @@ while I wanna tell them live but
 they don't know what makes them anxious
 kept forgiving all their sins
 
-they don't care, it's damage done
+they don't care, all this  damage done
 they make you feel like shit
 round and round and round it goes
 hit and miss
